@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-This privacy policy covers the following apps created by Clayton Perroni: Roast Them, Sunshine Emoji, Baseball Emoji, Burrito Time, Beach Ball Emoji, Candy Corn Emoji, Hot Dog Emoji, Mint Emoji, Popsicle Emoji.
+This privacy policy covers the following apps created by Clayton Perroni: Roast Them, Sunshine Emoji, Baseball Emoji, Burrito Time, Beach Ball Emoji, Candy Corn Emoji, Hot Dog Emoji, Mint Emoji, Popsicle Emoji, Cinnamon Roll Emoji, Popcorn Kernel Emoji.
 
 Clayton Perroni built the forementioned apps as Commercial apps. This SERVICE is provided by Clayton Perroni and is intended for use as is.
 
